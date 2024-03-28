@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-<!--
 Zelf kaasstengels maken
 Bekleed een bakplaat met bakpapier. 
 
